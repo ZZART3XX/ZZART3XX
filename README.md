@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭Je suis Malware Developper<br>🤝Ouvert aux collaboration<br>💬Posez moi une question<br>⚡https://t.me/LapsusGroup
+🔭Je suis Malware Developper<br>🤝Ouvert aux collaboration<br>💬Posez moi une question<br>⚡https://t.me/GroupLapsus
 
 
 ## 🌐 Socials:
